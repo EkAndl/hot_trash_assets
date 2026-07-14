@@ -1,0 +1,1 @@
+# hot_trash_assets
